@@ -1,4 +1,4 @@
-Hey there! 👋 I'm N1sh4n, the Perfectionist Coder 🧙‍♂️
+Hey there! 👋 I'm N1sh4n 🧙‍♂️
 Welcome to my realm of bytes and bugs, where the fun never ends and the code never sleeps! 🚀
 
 About Me 🤓
